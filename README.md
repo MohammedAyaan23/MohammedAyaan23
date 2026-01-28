@@ -9,7 +9,7 @@
 
 - 👨‍💻 Do Visit My PortFolio [https://portfolio-website-60v.pages.dev/](https://portfolio-website-60v.pages.dev/)
 
-- 📫 How to reach me **ayaanjune2003@gmail.com**
+- 📫 How to reach me 
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1xRWQ3hXp5AXTuIpmbvJgO6o3c7eZrHTx/view?usp=drive_link](https://drive.google.com/file/d/1xRWQ3hXp5AXTuIpmbvJgO6o3c7eZrHTx/view?usp=drive_link)
 
